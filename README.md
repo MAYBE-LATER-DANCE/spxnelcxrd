@@ -1,4 +1,5 @@
-## Hi there 👋
+## OH HELLO! MY NAME IS KRIS DREEMURR!
+Fun fact, I HATE DOUBLES!! 
 
 <!--
 **spxnelcxrd/spxnelcxrd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

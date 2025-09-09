@@ -2,7 +2,7 @@
 Fun fact, I HATE DOUBLES!! 
 
 <!--
-**spxnelcxrd/spxnelcxrd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**MAYBE-LATER-DANCE/MAYBE-LATER-DANCE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
